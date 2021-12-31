@@ -1,4 +1,4 @@
-### Hi there 👋
+### Bite the hand that feeds one. 👋
 
 <!--
 **roseline1246zz3c/roseline1246zz3c** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
